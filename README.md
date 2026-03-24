@@ -1,0 +1,1 @@
+# minoriform.co.jp
